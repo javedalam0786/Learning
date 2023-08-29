@@ -1,3 +1,3 @@
 # Learning
 <br>
-Author:- (Javed Alam)
+Author - (Javed Alam)
